@@ -15,6 +15,10 @@ https://github.com/Vikeesalunkhe/SolidWork_Design/assets/117392336/a4df1489-1e3e
 
 https://github.com/Vikeesalunkhe/SolidWork_Design/assets/117392336/2dee8ffe-1990-4bae-b171-85d3571aa103
 
+## CAM-Mechanisum
+
+https://github.com/Vikeesalunkhe/SolidWork_Design/assets/117392336/5c6579d1-c12a-4e5f-997f-8c886ab42b7e
+
 
 
 
